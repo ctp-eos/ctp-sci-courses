@@ -81,5 +81,5 @@ This course is taught in the simplest terms and explanations possible for easy u
 5) No Boundaries Existence
 
 
-Copyright © 2006-2023 by CTP Energy, LLC (CTPLLC)
+Copyright © 2006-2023 by CTP Energy, LLC (CTPLLC)  
 All Rights Reserved.
