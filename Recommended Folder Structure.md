@@ -50,7 +50,7 @@ ctp-sci-courses/
     ├── investor-pitch/
     ├── media-kit/
     └── lms-export/
-
+```
 ---
 
 ## Naming Conventions
