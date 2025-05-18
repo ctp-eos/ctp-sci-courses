@@ -40,7 +40,8 @@ This course is taught in the simplest terms and explanations possible for easy u
 2) GCF and Thought
 3) Finding Someone or Something via Their GCF
 4) Embedding of GCF in Other Entities or C-energy Units
-5) GCF and Animals6) Higher Self GCF
+5) GCF and Animals
+6) Higher Self GCF
 7) Group C-energy Attraction (GCA)
 
 **Lesson 4 – Base Matter & Live Entities**
