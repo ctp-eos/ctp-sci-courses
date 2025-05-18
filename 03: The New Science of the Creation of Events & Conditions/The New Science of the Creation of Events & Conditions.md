@@ -61,5 +61,7 @@ Learn how you are not a victim of such events but the creator of them. Learn how
 5) How to Sense Future Just as You Remember the Past
 6) How to Maximize Number of Positive Events per Day
 
-Copyright © 2006-2023 by CTP Energy, LLC (CTPLLC)  
+Copyright © 2004-2025 by CTP Energy, LLC (CTPLLC)  
 All Rights Reserved.
+
+---
