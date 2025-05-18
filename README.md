@@ -31,7 +31,7 @@ This new era continues our tradition of community engagement through modern tele
 ## Course Offerings
 
 # Original CTP Phase I Courses
-- **The Basics of CTP Energy Science (CTPSci)**<br>
+- [**The Basics of CTP Energy Science (CTPSci)**](https://github.com/ctp-eos/ctp-sci-courses/blob/main/01%3A%20The%20Basics%20of%20CTP%20Energy%20Science%20(CTPSci)/The%20Basics%20of%20CTP%20Energy%20Science%20(CTPSci).md)<br>
 - **The New Science of Our Non-physical C-Existence**<br>
 - **The New Science of the Creation of Events & Conditions**<br>
 - **The New Science of Our Thought & Thinking**<br>
