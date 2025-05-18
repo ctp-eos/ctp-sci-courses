@@ -76,7 +76,7 @@ Everything you always wondered about your thought and until now did not have pre
 7) How To Have 100 times Faster Thought-Decision Process
 8) How To Trust Your Thoughts, Feelings, Choices, Decisions, & Intuition
 
-Copyright © 2006-2023 by CTP Energy, LLC (CTPLLC)  
+Copyright © 2004-2025 by CTP Energy, LLC (CTPLLC)  
 All Rights Reserved.
 
 ---
