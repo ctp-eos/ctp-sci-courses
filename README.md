@@ -49,6 +49,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Disruption: Benefits, Challenges, & Implications; The Risks & Rewards**<br>
 - **The New Science of CTP Emergence: A Time of Crises in Sciences and Humanity**<br>
 - **The New Science of CTP Emerging: Transitioning to a Post-Disclosure World**<br>
+- **The New Science of CTP Energy: Abundant Energy Future**<br>
 - **The New Science of CTP Extraterrestrial Sciences**<br>
 - **The New Science of CTP Global Terrestrial Planetary Solutions - CTPGTP**<br>
 - **The New Science of CTP Gravitic Propulsion**<br>
