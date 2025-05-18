@@ -76,5 +76,9 @@ Everything you always wondered about your thought and until now did not have pre
 7) How To Have 100 times Faster Thought-Decision Process
 8) How To Trust Your Thoughts, Feelings, Choices, Decisions, & Intuition
 
+**NOTE:** *(Deprecated¹ – While NSOP Course 07 will include this as a concluded model/lesson, additional future CTPSci Sciences courses will further develop and expand upon Module 6: Improving Your Life Through Better Thought Processes. Topics will include an exploration of why common New Age thinking and other teachings in this area sometimes fail. Drazen's fall and failures will also be addressed. Not to be missed!)*  
+
 Copyright © 2006-2023 by CTP Energy, LLC (CTPLLC)  
 All Rights Reserved.
+
+---
