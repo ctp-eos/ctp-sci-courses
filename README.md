@@ -41,22 +41,40 @@ This new era continues our tradition of community engagement through modern tele
 - [**The New Science of Higher Self & Aspects**](https://github.com/ctp-eos/ctp-sci-courses/blob/main/08%3A%20The%20New%20Science%20of%20Higher%20Self%20%26%20Aspects/The%20New%20Science%20of%20Higher%20Self%20%26%20Aspects.md)<br>
 
 # CTP Phase II Courses
+- **The New Science of CTP Accelerated Consciousness**<br>
 - **The New Science of CTP Anti-Aging, CTP Life Extension, and CTP Longevity**<br>
+- **The New Science of CTP Biology & CTP Biotechnologies**<br>
+- **The New Science of CTP Communications**<br>
 - **The New Science of CTP Cosmology: From Astrophyiscs to Cosmology; Solving the Last Big Questions**<br>
 - **The New Science of CTP Disruption: Benefits, Challenges, & Implications; The Risks & Rewards**<br>
 - **The New Science of CTP Emergence: A Time of Crises in Sciences and Humanity**<br>
-- **The New Science of CTP Energy: The Postquantum New Science Beyond the Standard Model**<br>
+- **The New Science of CTP Emerging: Transitioning to a Post-Disclosure World**<br>
+- **The New Science of CTP Extraterrestrial Sciences**<br>
+- **The New Science of CTP Global Terrestrial Planetary Solutions - CTPGTP**<br>
 - **The New Science of CTP Gravitic Propulsion**<br>
+- **The New Science of CTP Gravity**<br>
 - **The New Science of CTP Holistic Living**<br>
+- **The New Science of CTP Human-Spiritual Physiology**<br>
+- **The New Science of CTP Human-Spiritual Reintegration**<br>
 - **The New Science of CTP Hyperspatial Sciences & C-domain**<br>
+- **The New Science of CTP & in a Post-Disclosure World**<br>
 - **The New Science of CTP Interstellar & Interspatial Travel via C-domain**<br>
+- **The New Science of CTP Matsci: CTP Materials Sciences & CEMAS**<br>
+- **The New Science of CTP Migration from Terrestrial to Extraterrestrial Consciousness**<br>
 - **The New Science of CTP Multiplanetary & Interstellar Advanced New Civilization**<br>
-- **The New Science of CTP & Ontological Crises**<br>
 - **The New Science of CTP & Nth Industrial Revolution: Humanity's Future in the Coming Age**<br>
-- **The New Science of CTP & the Structure of a New Scientific Revolution**<br>
+- **The New Science of CTP & Ontological Crises**<br>
+- **The New Science of CTP Ontological Filters**<br>
+- **The New Science of CTP Open-Source Consciousness**<br>
+- **The New Science of CTP Postquantum Sciences: New Science(s) Beyond the Standard Model**<br>
+- **The New Science of CTP Renaissance**<br>
+- **The New Science of CTP SETI**<br>
+- **The New Science of CTP Spiritual Software**<br>
+- **The New Science of CTP Spiritual Technologies**<br>
+- **The New Science of CTP Spiritual-Temporal Syncronization**<br>
+- **The New Science of CTP Structure of a New Scientific Revolution**<br>
 
 # Other Courses
 - *Additional CTP Energy Science Courses – Coming Soon*
 
 ---
-
