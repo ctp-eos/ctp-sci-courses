@@ -10,7 +10,7 @@ This course teaches you in detail about C-energy, T-energy, and P-energy and how
 It also teaches how everything has C-energy behind it and how CTP Energy Cycleᵀᴹ creates the world around us. Our physical P-reality is quite literally “rendered” by the total CTP forces.Learn about our Planet Earth and its C-energy Units, about different physical and non-
 physical realities C-energy creates, about UFOs and other paranormal phenomena, and about the revolutionary CTP Energy Systems that will be built and used one day.
 
-This course is taught in the simplest terms and explanations possible for easy understanding and comprehension by anyone. Upon completion of this course, your life will change because your Ego Mind will now be familiar with what your Higher Mind (or C-mind) already knows.
+This course is taught in the simplest terms and explanations possible for easy understanding and comprehension by anyone. Upon completion of this course, your life will change because your Ego Mind *(the mind that governs your physical or P-body)* will now be familiar with what your Higher Mind (or C-mind) already knows.
 
 ### Basics of CTP Energy Science (CTPSci)
 
