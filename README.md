@@ -57,14 +57,14 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Human-Spiritual Physiology**<br>
 - **The New Science of CTP Human-Spiritual Reintegration**<br>
 - **The New Science of CTP Hyperspatial Sciences & C-domain**<br>
-- **The New Science of CTP & in a Post-Disclosure World**<br>
+- **The New Science of CTP in a Post-Disclosure World**<br>
 - **The New Science of CTP Interstellar & Interspatial Travel via C-domain**<br>
 - **The New Science of CTP Matsci: CTP Materials Sciences & CEMAS**<br>
 - **The New Science of CTP Migration from Terrestrial to Extraterrestrial Consciousness**<br>
 - **The New Science of CTP Multiplanetary & Interstellar Advanced New Civilization**<br>
 - **The New Science of CTP Non-human Intelligence - NHI**<br>
-- **The New Science of CTP & Nth Industrial Revolution: Humanity's Future in the Coming Age**<br>
-- **The New Science of CTP & Ontological Crises**<br>
+- **The New Science of CTP Nth Industrial Revolution: Humanity's Future in the Coming Age**<br>
+- **The New Science of CTP Ontological Crises**<br>
 - **The New Science of CTP Ontological Filters**<br>
 - **The New Science of CTP Open-Source Consciousness**<br>
 - **The New Science of CTP Postquantum Sciences: New Science(s) Beyond the Standard Model**<br>
