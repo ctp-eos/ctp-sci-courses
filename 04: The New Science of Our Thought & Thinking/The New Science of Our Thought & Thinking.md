@@ -18,7 +18,7 @@ around us?
 - How does Group C-Energy Frequency (GCF) get embedded in thought?
 - How does thought find its target?
 
-Everything you always wondered about your thought and until now did not have precise answers to these questions. A must-take CTP Energy Science Course for CTP Energy Science (CTPSci) students to understand thoughts and consciousness.
+Everything you always wondered about your thought and until now did not have precise answers to these questions. A must-take CTP Energy Science Course for CTP Energy Science (CTPSci) students to understand the nature of thoughts and consciousness.
 
 ### The New Science of Our Thought and Thinking
 
