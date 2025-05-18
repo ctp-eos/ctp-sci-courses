@@ -44,7 +44,7 @@ Take this CTP Energy Science course and learn a lot more about the fascinating s
 3) Higher Self Group C-energy Frequency (HSGCF)
 4) Bleed Through of Aspects Memories
 5) Bleed Through of Aspects Thoughts
-6) Meeting and Connecting With Aspects in C-DomainLesson
+6) Meeting and Connecting With Aspects in C-Domain
 
 **Lesson 5: Benefits To You From Your Aspects**
 1) Your State Of Mind Thanks to Your Aspects
