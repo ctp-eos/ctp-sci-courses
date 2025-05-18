@@ -63,14 +63,14 @@ This course is taught in the simplest terms and explanations possible for easy u
 
 **Lesson 6 – CTP Energy Systems**
 1) Principles of all CTP Energy Systems
-2) CTP Water Crystal BoothTM
-3) C-Energy Earth Disturbance DetectorTM
-4) P-Body C-energy HealerTM
-5) C-Domain CommunicatorTM
-6) P-Domain Objects MoverTM
-7) C-Body SeparatorTM
-8) CTP Gravity Control SystemTM
-9) C-Energy Frequency ModulatorTM
+2) CTP Water Crystal Boothᵀᴹ
+3) C-Energy Earth Disturbance Detectorᵀᴹ
+4) P-Body C-energy Healerᵀᴹ
+5) C-Domain Communicatorᵀᴹ
+6) P-Domain Objects Moverᵀᴹ
+7) C-Body Separatorᵀᴹ
+8) CTP Gravity Control Systemᵀᴹ
+9) C-Energy Frequency Modulatorᵀᴹ
 10) Other CTP Energy Systems
 
 **Lesson 7 – Other CTP Applications**
