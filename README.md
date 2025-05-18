@@ -41,13 +41,17 @@ This new era continues our tradition of community engagement through modern tele
 - [**The New Science of Higher Self & Aspects**](https://github.com/ctp-eos/ctp-sci-courses/blob/main/08%3A%20The%20New%20Science%20of%20Higher%20Self%20%26%20Aspects/The%20New%20Science%20of%20Higher%20Self%20%26%20Aspects.md)<br>
 
 # CTP Phase II Courses
-- **The New Science of CTP Anti-Aging, CTP Life Extension, and CTP Longevity**
+- **The New Science of CTP Anti-Aging, CTP Life Extension, and CTP Longevity**<br>
+- **The New Science of CTP Cosmology: From Astrophyiscs to Cosmology; Answerings & Solving the Last Big Questions**<br>
+- **The New Science of CTP Disruption: Benefits, Challenges, & Implications; The Risks & Rewards**<br>
+- **The New Science of CTP Energy: The Postquantum New Science Beyond the Standard Model**<br>
 - **The New Science of CTP Gravitic Propulsion**<br>
 - **The New Science of CTP Holistic Living**<br>
 - **The New Science of CTP Hyperspatial Sciences & C-domain**<br>
 - **The New Science of CTP Interstellar & Interspatial Travel via C-domain**<br>
-- **The New Science of Multiplanetary & Interstellar Advanced New Civilization**<br>
-- **The Nth Industrial Revolution: Humanity's Future in the Coming Age**<br>
+- **The New Science of CTP Multiplanetary & Interstellar Advanced New Civilization**<br>
+- **The New Science of CTP & Ontological Crises**<br>
+- **The New Science of CTP & Nth Industrial Revolution: Humanity's Future in the Coming Age**<br>
 
 # Other Courses
 - *Additional CTP Energy Science Courses – Coming Soon*
