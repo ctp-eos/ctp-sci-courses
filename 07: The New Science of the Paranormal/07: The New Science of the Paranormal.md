@@ -81,7 +81,7 @@ Each paranormal phenomenon has its own CTP Energy Science (CTPSci) explanation a
 
 ---
 
-Copyright © 2004-2025 by CTP Energy, LLC (CTPLLC)
+Copyright © 2004-2025 by CTP Energy, LLC (CTPLLC)  
 All Rights Reserved.
 
 ---
