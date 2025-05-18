@@ -6,7 +6,7 @@
 While many people believe in a “higher power,” questions often remain about how such non-physical phenomena might function scientifically. Common beliefs express a sentiment like:  
 > “I believe in a higher power that science doesn’t understand.”
 
-**CTP Energy Science (CTPSci)** addresses this very mystery by offering a new framework that begins to explain what this higher power truly is—**non-physical Conscious or C-energy**—and how it operates in and around all things.
+**CTP Energy Science (CTPSci)** addresses this very mystery by offering a new framework that begins to explain what this higher power truly is—**non-physical Conscious or C-energy**—and how it operates in and around and behind all things.
 
 With the relaunch of CTPSci after nearly two decades since our initial outreach in the early 2000s, we are entering **Phase II** of a bold new scientific era. This renewed effort promises a deeper, more structured understanding of the **C-domain**, scientifically, and the influence of **non-physical Conscious or C-energy** on reality, consciousness, perception, and transformation.
 
