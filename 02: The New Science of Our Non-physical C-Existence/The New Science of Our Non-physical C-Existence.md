@@ -1,7 +1,8 @@
 ### The New Science of Our Non-physical C-Existence
 
-Over centuries and totality of human existence, we have believed in and used our spiritual body and prayers to better our lives and to live a spiritual life as well. However, until now, we really did not understand the exact CTP Energy Science (CTPSci) of it.
-Many of those who practice using spiritual energy benefit from it but still do not know or understand exactly how it works or the CTP Energy Science (CTPSci) involved.
+Throughout human history, people have turned to spiritual practices, prayer, and the idea of a higher self to bring meaning, healing, and connection into their lives. While these traditions have offered profound experiences, the underlying mechanisms have often remained mysterious—guided more by faith than by formal understanding.
+
+This course introduces a groundbreaking framework based on CTP Energy Science (CTPSci)—a new approach that seeks to decode and clarify the scientific principles behind our non-physical C-existence. Whether you are a long-time spiritual practitioner or a curious seeker, this journey offers insight into how and why spiritual energy works from a science-driven perspective rooted in CTPSci.
 
 This course explains in great detail the exact and-or fixed science per CTP Energy Science
 (CTPSci) of our non-physical C-existence...
