@@ -41,7 +41,7 @@ This new era continues our tradition of community engagement through modern tele
 - [**The New Science of Higher Self & Aspects**](https://github.com/ctp-eos/ctp-sci-courses/blob/main/08%3A%20The%20New%20Science%20of%20Higher%20Self%20%26%20Aspects/The%20New%20Science%20of%20Higher%20Self%20%26%20Aspects.md)<br>
 
 # CTP Phase II Courses
-- **The New Science of CTP Accelerated Consciousness**<br>
+- **The New Science of CTP Accelerated Intelligence**<br>
 - **The New Science of CTP Anti-Aging, CTP Life Extension, and CTP Longevity**<br>
 - **The New Science of CTP Biology & CTP Biotechnologies**<br>
 - **The New Science of CTP Civilization**<br>
