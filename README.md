@@ -18,7 +18,7 @@ This foundational energy exists behind and within all things—therefore, it inf
 
 ## Background & Legacy
 
-Originating with the original **CTPEC Phase I Operations in 2004**, earlier versions of these courses were taught online and through live teleconference sessions. Some were led directly by **Drazen Premate**, the original discoverer of CTP Energy Science, while others were conducted by trained instructors. These teachings were informed by Drazen’s over **23,000 direct experiences** of the C-domain, along with laboratory experimentation and results derived from CTPSci principles.
+Originating with the original **CTPEC Phase I Operations in 2004**, earlier versions of these courses were taught online and through live teleconference sessions. Some were led directly by **Drazen Premate**, the original discoverer of CTP Energy Science, while others were conducted by trained instructors. These teachings were informed by Drazen Premates’s over **23,000 direct experiences** of the C-domain, along with laboratory experimentation and results derived from CTPSci principles.
 
 ---
 
