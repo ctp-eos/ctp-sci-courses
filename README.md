@@ -43,6 +43,7 @@ This new era continues our tradition of community engagement through modern tele
 # CTP Phase II Courses
 - **The New Science of CTP Anti-Aging, CTP Life Extension, and CTP Longevity**
 - **The New Science of CTP Gravitic Propulsion**<br>
+- **The New Science of CTP Holistic Living**<br>
 - **The New Science of CTP Hyperspatial Sciences & C-domain**<br>
 - **The New Science of CTP Interstellar & Interspatial Travel via C-domain**<br>
 - **The New Science of Multiplanetary & Interstellar Advanced New Civilization**<br>
