@@ -84,5 +84,5 @@ Learn about great groups of consciousness of nations like Rome, Egypt, Greece, a
 9) Permanently Connecting Physical and Spiritual World
 10) No Boundaries Existence
 
-Copyright © 2006-2023 by CTP Energy, LLC (CTPLLC)  
+Copyright © 2004-2025 by CTP Energy, LLC (CTPLLC)  
 All Rights Reserved.
