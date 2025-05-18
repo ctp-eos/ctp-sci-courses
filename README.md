@@ -31,21 +31,22 @@ This new era continues our tradition of community engagement through modern tele
 ## Course Offerings
 
 # Original CTP Phase I Courses
-- **The Basics of CTP Energy Science (CTPSci)**
-- **The New Science of Our Non-physical C-Existence**
-- **The New Science of the Creation of Events & Conditions**
-- **The New Science of Our Thought & Thinking**
-- **The New Science of Our Dreams**
-- **The New Science of Species & Civilizations**
-- **The New Science of the Paranormal**
-- **The New Science of Higher Self & Aspects**
+- **The Basics of CTP Energy Science (CTPSci)**<br>
+- **The New Science of Our Non-physical C-Existence**<br>
+- **The New Science of the Creation of Events & Conditions**<br>
+- **The New Science of Our Thought & Thinking**<br>
+- **The New Science of Our Dreams**<br>
+- **The New Science of Species & Civilizations**<br>
+- **The New Science of the Paranormal**<br>
+- **The New Science of Higher Self & Aspects**<br>
 
 # CTP Phase II Courses
-- **The New Science of CTP Gravitic Propulsion**
-- **The New Science of CTP Hyperspatial Sciences & C-domain**
-- **The New Science of CTP Interstellar & Interspatial Travel via C-domain**
-- **The New Science of Multiplanetary & Interstellar Advanced New Civilization**
-- **The Nth Industrial Revolution: Humanity's Future in the Coming Age**
+- **The New Science of CTP Gravitic Propulsion**<br>
+- **The New Science of CTP Hyperspatial Sciences & C-domain**<br>
+- **The New Science of CTP Interstellar & Interspatial Travel via C-domain**<br>
+- **The New Science of Multiplanetary & Interstellar Advanced New Civilization**<br>
+- **The Nth Industrial Revolution: Humanity's Future in the Coming Age**<br>
+
  
 - *Additional CTP Energy Science Courses – Coming Soon*
 
