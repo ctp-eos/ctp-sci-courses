@@ -42,7 +42,7 @@ This new era continues our tradition of community engagement through modern tele
 
 # CTP Phase II Courses
 - **The New Science of CTP Anti-Aging, CTP Life Extension, and CTP Longevity**<br>
-- **The New Science of CTP Cosmology: From Astrophyiscs to Cosmology; Answerings & Solving the Last Big Questions**<br>
+- **The New Science of CTP Cosmology: From Astrophyiscs to Cosmology; Solving the Last Big Questions**<br>
 - **The New Science of CTP Disruption: Benefits, Challenges, & Implications; The Risks & Rewards**<br>
 - **The New Science of CTP Emergence: A Time of Crises in Sciences and Humanity**<br>
 - **The New Science of CTP Energy: The Postquantum New Science Beyond the Standard Model**<br>
