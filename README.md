@@ -1,7 +1,7 @@
 # CTP: The Ultimate Knowledge About Everything™  
 ## CTP Energy Science (CTPSci) Courses Syllabus  
 
-**CTP Energy, LLC (CTPLLC)** presents a groundbreaking series of courses that explore the frontiers of knowledge through the lens of **CTP Energy Science (CTPSci)**. These courses bring together compelling topics from new postquantum sciences, higher dimensions, consciousness, contemporary C-spirituality, dreams, thought, event manifestation, the paranormal, the postquantum sciences utilized by **UFOs/#UAPs** *(what we refer to as CTP craft (by name)*, species and civilizations, the higher-self, hyperspatial sciences, the coming **Nth Industrial Revolution**, and more — as interpreted through new scientific understandings derived from CTPSci.
+**CTP Energy, LLC (CTPLLC)** presents a groundbreaking series of courses that explore the frontiers of knowledge through the lens of **CTP Energy Science (CTPSci)**. These courses bring together compelling topics from new postquantum sciences, higher dimensions, consciousness, contemporary C-spirituality, dreams, thought, event manifestation, the paranormal, the postquantum sciences utilized by **UFOs/#UAPs** *(what we refer to as CTP craft (by name)*, species and civilizations, the higher-self, hyperspatial sciences, the coming **Nth Industrial Revolution**, and more — as interpreted through new scientific understandings derived from CTP Energy and the CTPSci Sciences.
 
 While many people believe in a “higher power,” questions often remain about how such non-physical phenomena might function scientifically. Common beliefs express a sentiment like:  
 > “I believe in a higher power that science doesn’t understand.”
