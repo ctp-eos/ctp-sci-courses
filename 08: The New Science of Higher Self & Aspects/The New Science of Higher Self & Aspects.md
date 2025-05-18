@@ -62,5 +62,7 @@ Take this CTP Energy Science course and learn a lot more about the fascinating s
 5) Higher Self Connection with Even Higher Selves
 6) All That Is Level of C-Domain Existence
 
-Copyright © 2006-2023 by CTP Energy, LLC (CTPLLC)  
+Copyright © 2004-2025 by CTP Energy, LLC (CTPLLC)  
 All Rights Reserved.
+
+---
