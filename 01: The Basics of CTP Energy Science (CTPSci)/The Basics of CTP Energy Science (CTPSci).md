@@ -84,3 +84,5 @@ This course is taught in the simplest terms and explanations possible for easy u
 
 Copyright © 2006-2023 by CTP Energy, LLC (CTPLLC)  
 All Rights Reserved.
+
+---
