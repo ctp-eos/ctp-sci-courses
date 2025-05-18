@@ -44,6 +44,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Anti-Aging, CTP Life Extension, and CTP Longevity**<br>
 - **The New Science of CTP Cosmology: From Astrophyiscs to Cosmology; Answerings & Solving the Last Big Questions**<br>
 - **The New Science of CTP Disruption: Benefits, Challenges, & Implications; The Risks & Rewards**<br>
+- **The New Science of CTP Emergence: A Time of Crises in Sciences and Humanity**<br>
 - **The New Science of CTP Energy: The Postquantum New Science Beyond the Standard Model**<br>
 - **The New Science of CTP Gravitic Propulsion**<br>
 - **The New Science of CTP Holistic Living**<br>
@@ -52,6 +53,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Multiplanetary & Interstellar Advanced New Civilization**<br>
 - **The New Science of CTP & Ontological Crises**<br>
 - **The New Science of CTP & Nth Industrial Revolution: Humanity's Future in the Coming Age**<br>
+- **The New Science of CTP & the Structure of a New Scientific Revolution**<br>
 
 # Other Courses
 - *Additional CTP Energy Science Courses – Coming Soon*
