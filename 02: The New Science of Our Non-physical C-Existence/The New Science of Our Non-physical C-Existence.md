@@ -1,4 +1,4 @@
-### The New Science of Our Non-physical C-Existence
+## The New Science of Our Non-physical C-Existence
 
 For centuries, humanity has relied on spiritual practices and prayer to enrich life and foster deeper connections beyond the physical world. While many have experienced real benefits from these traditions, the precise nature of this non-physical existence has remained elusive.
 
@@ -13,7 +13,7 @@ This course explains in great detail the exact and-or fixed science per CTP Ener
 - how we can improve memories of visits to C-domain<br>
 - how we can apply knowledge gained via our C-body to our physical life and much more<br>
 
-## The New Science of Our Non-physical C-Existence
+### The New Science of Our Non-physical C-Existence
 
 **Course Outline**
 
