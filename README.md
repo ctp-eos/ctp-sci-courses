@@ -46,7 +46,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Interstellar & Interspatial Travel Via C-domain**
 - **The New Science of Multiplanetary & Interstellar Advanced New Civilization**
 - **The Nth Industrial Revolution: Humanity's Future in the Coming Age**
-
+ 
 - *Additional CTP Energy Science Courses – Coming Soon*
 
 ---
