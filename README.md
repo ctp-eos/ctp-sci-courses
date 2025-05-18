@@ -62,6 +62,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Matsci: CTP Materials Sciences & CEMAS**<br>
 - **The New Science of CTP Migration from Terrestrial to Extraterrestrial Consciousness**<br>
 - **The New Science of CTP Multiplanetary & Interstellar Advanced New Civilization**<br>
+- **The New Science of CTP Non-human Intelligence - NHI**<br>
 - **The New Science of CTP & Nth Industrial Revolution: Humanity's Future in the Coming Age**<br>
 - **The New Science of CTP & Ontological Crises**<br>
 - **The New Science of CTP Ontological Filters**<br>
