@@ -7,6 +7,50 @@
 - **Branding:** Use a `branding/` folder for logos, slide templates, and other visual assets.
 - **Extras:** Place investor materials, media kits, and LMS exports under an `extras/` folder.
 
+
+# Recommended Folder Structure for CTP-Sci-Courses
+
+This document outlines the recommended organization of files and folders within the `ctp-sci-courses` repository to keep content clean, maintainable, and easy to navigate.
+
+---
+
+## Folder Structure Overview
+
+```plaintext
+ctp-sci-courses/
+│
+├── README.md
+├── LICENSE
+│
+├── course-1-beginner/
+│   ├── images/
+│   │   ├── lesson1-diagram.png
+│   │   └── slide-preview.png
+│   ├── lesson1.pdf
+│   ├── lesson1.txt
+│   ├── quiz1.md
+│   └── assets/
+│       └── exercise1-template.docx
+│
+├── course-2-intermediate/
+│   ├── images/
+│   ├── lesson1.pdf
+│   └── ...
+│
+├── course-3-advanced/
+│   ├── images/
+│   └── ...
+│
+├── branding/
+│   ├── logo.png
+│   ├── slide-template.pptx
+│   └── header-banner.svg
+│
+└── extras/
+    ├── investor-pitch/
+    ├── media-kit/
+    └── lms-export/
+
 ---
 
 ## Naming Conventions
