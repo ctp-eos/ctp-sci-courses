@@ -1,3 +1,11 @@
+# 📁 CTP-Sci-Courses Repository Structure Guide
+
+This guide outlines the recommended folder structure for organizing all course content, images, branding, and extra assets in the `ctp-sci-courses` GitHub repository. Following this format ensures clarity, scalability, and professionalism for contributors, learners, and collaborators.
+
+---
+
+## 📦 Folder Structure
+
 ctp-sci-courses/
 │
 ├── README.md
@@ -31,3 +39,5 @@ ctp-sci-courses/
     ├── investor-pitch/
     ├── media-kit/
     └── lms-export/
+
+---
