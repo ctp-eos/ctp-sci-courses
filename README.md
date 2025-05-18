@@ -35,9 +35,9 @@ This new era continues our tradition of community engagement through modern tele
 - [**The New Science of Our Non-physical C-Existence**](https://github.com/ctp-eos/ctp-sci-courses/blob/main/02:%20The%20New%20Science%20of%20Our%20Non-physical%20C-Existence/The%20New%20Science%20of%20Our%20Non-physical%20C-Existence.md)<br>
 - [**The New Science of the Creation of Events & Conditions**](https://github.com/ctp-eos/ctp-sci-courses/blob/main/03%3A%20The%20New%20Science%20of%20the%20Creation%20of%20Events%20%26%20Conditions/The%20New%20Science%20of%20the%20Creation%20of%20Events%20%26%20Conditions.md)<br>
 - [**The New Science of Our Thought & Thinking**](https://github.com/ctp-eos/ctp-sci-courses/blob/main/04%3A%20The%20New%20Science%20of%20Our%20Thought%20%26%20Thinking/The%20New%20Science%20of%20Our%20Thought%20%26%20Thinking.md)<br>
-- **The New Science of Our Dreams**<br>
-- **The New Science of Species & Civilizations**<br>
-- **The New Science of the Paranormal**<br>
+- [**The New Science of Our Dreams**](https://github.com/ctp-eos/ctp-sci-courses/blob/main/05%3A%20The%20New%20Science%20of%20Our%20Dreams/The%20New%20Science%20of%20Our%20Dreams.md)<br>
+- [**The New Science of Species & Civilizations**](https://github.com/ctp-eos/ctp-sci-courses/blob/main/06%3A%20The%20New%20Science%20of%20Species%20%26%20Civilizations/The%20New%20Science%20of%20Species%20%26%20Civilizations.md)<br>
+- [**The New Science of the Paranormal**](https://github.com/ctp-eos/ctp-sci-courses/blob/main/07%3A%20The%20New%20Science%20of%20the%20Paranormal/07%3A%20The%20New%20Science%20of%20the%20Paranormal.md)<br>
 - [**The New Science of Higher Self & Aspects**](https://github.com/ctp-eos/ctp-sci-courses/blob/main/08%3A%20The%20New%20Science%20of%20Higher%20Self%20%26%20Aspects/The%20New%20Science%20of%20Higher%20Self%20%26%20Aspects.md)<br>
 
 # CTP Phase II Courses
