@@ -44,6 +44,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Accelerated Consciousness**<br>
 - **The New Science of CTP Anti-Aging, CTP Life Extension, and CTP Longevity**<br>
 - **The New Science of CTP Biology & CTP Biotechnologies**<br>
+- **The New Science of CTP Civilization**<br>
 - **The New Science of CTP Communications**<br>
 - **The New Science of CTP Cosmology: From Astrophyiscs to Cosmology; Solving the Last Big Questions**<br>
 - **The New Science of CTP Disruption: Benefits, Challenges, & Implications; The Risks & Rewards**<br>
