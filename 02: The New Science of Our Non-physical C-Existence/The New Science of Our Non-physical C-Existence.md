@@ -65,5 +65,7 @@ This course explains in great detail the exact and-or fixed science per CTP Ener
 6) Meeting Others in C-Domain Upon Physical Death
 7) Adapting to Pure Spiritual Existence
 
-Copyright © 2006-2023 by CTP Energy, LLC (CTPLLC)  
+Copyright © 2004-2025 by CTP Energy, LLC (CTPLLC)  
 All Rights Reserved.
+
+---
