@@ -24,7 +24,7 @@ Originating with the original **CTPEC Phase I Operations in 2004**, earlier vers
 
 ## CTP Energy Science (CTPSci): Phase II
 
-This new era continues our tradition of community engagement through modern teleconferencing (Zoom and other platforms), and will soon expand to full-scale, invite-only or future commercial and branded **CTP Forum events**. Phase II represents a new leadership direction—carrying forward the original legacy while presenting a renewed vision for the future.
+This new era continues our tradition of community engagement through modern teleconferencing *(Zoom, Matrix, and other platforms)*, and will soon expand to full-scale, invite-only or future public and branded **CTP Forum events**. Phase II represents a new leadership direction—carrying forward the original legacy while presenting a renewed vision for the future.
 
 ---
 
