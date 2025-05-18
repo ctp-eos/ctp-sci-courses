@@ -86,3 +86,5 @@ Learn about great groups of consciousness of nations like Rome, Egypt, Greece, a
 
 Copyright © 2004-2025 by CTP Energy, LLC (CTPLLC)  
 All Rights Reserved.
+
+---
