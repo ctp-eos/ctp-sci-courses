@@ -47,6 +47,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of Multiplanetary & Interstellar Advanced New Civilization**<br>
 - **The Nth Industrial Revolution: Humanity's Future in the Coming Age**<br>
 
+# Other Courses
 - *Additional CTP Energy Science Courses – Coming Soon*
 
 ---
