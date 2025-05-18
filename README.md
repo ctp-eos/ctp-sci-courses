@@ -31,6 +31,7 @@ This new era continues our tradition of community engagement through modern tele
 ## Course Offerings
 
 # Original CTP Phase I Courses
+
 - **The Basics of CTP Energy Science (CTPSci)**
 - **The New Science of Our Non-physical C-Existence**
 - **The New Science of the Creation of Events & Conditions**
@@ -41,6 +42,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of Higher Self & Aspects**
 
 # CTP Phase II Courses
+
 - **The New Science of CTP Gravitic Propulsion**
 - **The New Science of CTP Hyperspatial Sciences & C-domain**
 - **The New Science of CTP Interstellar & Interspatial Travel via C-domain**
