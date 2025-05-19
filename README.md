@@ -84,7 +84,7 @@ This new era continues our tradition of community engagement through modern tele
 
 Later to Come and New Additional CTP Energy Science (CTPSci) Courses Newer and other CTP Energy Science (CTPSci) courses will be developed and are planned for release in the coming years as CTP Energy Science (CTPSci) advances, matures, and is refined in the coming years. 
 
-New course realizations are expected to be contributed to by new CTP Energy Science (CTPSci) Course Leaders, CTP Forum Leaders, CTP Educational Curriculum Developers, and other CTP Energy Science (CTPSci) Experts that will eventually join us as we prepare for the CTP Energy Age and the Nth Industrial Revolution that will lead humanity to the stars and as all of us lead more enriched conscious physical & spiritual lives.
+New course realizations are expected to be contributed to by new CTP Energy Science (CTPSci) Course Leaders, CTP Forum Leaders, CTP Educational Curriculum Developers, and other CTP Energy Science (CTPSci) Experts that come to join us as we prepare for the **CTP Energy Age** and the **Nth Industrial Revolution** that will lead humanity to the stars and as all of us lead more enriched conscious physical & spiritual lives.
 
 ---
 
