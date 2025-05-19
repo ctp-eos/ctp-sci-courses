@@ -84,10 +84,6 @@ This new era continues our tradition of community engagement through modern tele
 
 ### Later to come and new additional CTP Energy Science (CTPSci) Courses 
 
-Here's a more polished and professional version of your enrollment statement, written in refined corporate language while preserving your visionary tone:
-
----
-
 **Future Course Development & Leadership Invitation**
 
 As CTP Energy Science (CTPSci) continues to evolve, mature, and undergo refinement, a new wave of advanced and specialized CTPSci courses is actively being developed for phased release. These future offerings will expand upon and align with the broader CTPSci Curriculum Development Framework, supporting our long-term educational and scientific roadmap.
