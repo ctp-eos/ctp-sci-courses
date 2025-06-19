@@ -46,6 +46,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Agriculture: Conscious Crop Engineering and Atmospheric Influence**  <br>
 - **The New Science of CTP Anti-Aging, Life Extension, and Longevity**  <br>
 - **The New Science of CTP ARcliner Systems: Gravitic Navigation Through Conscious Fields**  <br>
+- **The New Science of CTP Architecture**  <br>
 - **The New Science of CTP Archetypes and Mythogenesis as Ontological Maps**  <br>
 - **The New Science of CTP Attention, Intention, and Field Sculpting**  <br>
 - **The New Science of CTP Avatar Protocols: Operating Multi-Domain Consciousness**  <br>
@@ -153,10 +154,10 @@ This new era continues our tradition of community engagement through modern tele
 
 ## 📚 Total CTPSci Curriculum Overview
 
-CTP Energy Science (CTPSci) currently offers a comprehensive total of **110 courses**, divided across three progressive phases of study and exploration.
+CTP Energy Science (CTPSci) currently offers a comprehensive total of **111 courses**, divided across three progressive phases of study and exploration.
 
 - **Phase I** — 8 foundational courses introducing core CTPSci principles.  
-- **Phase II** — 84 expanded courses covering advanced C-domain systems, postquantum tech, non-human sciences, planetary engineering, and beyond.  
+- **Phase II** — 85 expanded courses covering advanced C-domain systems, postquantum tech, non-human sciences, planetary engineering, and beyond.  
 - **Phase III** — 18 speculative and future-forward courses exploring hyperdimensional systems, post-human evolution, and C-domain consciousness technologies.
 
 > This curriculum will continue to grow as new discoveries, field applications, and higher-order knowledge streams from the C-domain emerge into collective awareness.
