@@ -105,6 +105,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Ontological Upward Positioning**  <br>
 - **The New Science of CTP Open-Source Consciousness**  <br>
 - **The New Science of CTP Phase Mechanics: Bridging Energy, Information, and Consciousness**  <br>
+- **The New Science of CTP Planetary Engineering**  <br
 - **The New Science of CTP Planetary Grid Mapping and Strategic C-Domain Zones**  <br>
 - **The New Science of CTP Political Systems in the Post-Material World**  <br>
 - **The New Science of CTP Postquantum Sciences: New Science(s) Beyond the Standard Model**  <br>
@@ -155,7 +156,7 @@ This new era continues our tradition of community engagement through modern tele
 CTP Energy Science (CTPSci) currently offers a comprehensive total of **109 courses**, divided across three progressive phases of study and exploration.
 
 - **Phase I** — 8 foundational courses introducing core CTPSci principles.  
-- **Phase II** — 83 expanded courses covering advanced C-domain systems, postquantum tech, non-human sciences, planetary engineering, and beyond.  
+- **Phase II** — 84 expanded courses covering advanced C-domain systems, postquantum tech, non-human sciences, planetary engineering, and beyond.  
 - **Phase III** — 18 speculative and future-forward courses exploring hyperdimensional systems, post-human evolution, and C-domain consciousness technologies.
 
 > This curriculum will continue to grow as new discoveries, field applications, and higher-order knowledge streams from the C-domain emerge into collective awareness.
