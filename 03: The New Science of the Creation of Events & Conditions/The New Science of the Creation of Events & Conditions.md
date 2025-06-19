@@ -26,7 +26,7 @@ Learn how you are not a victim of such events but the creator of them. Learn how
 1) 10 Rules of CTP Energy Science (CTPSci)
 2) No Time - No Space in C-domain
 3) Your Thought is Your Action
-4) Events as Viewed in C-domain5) Sequence of Conditions of an Event
+4) Events as Viewed in C-domain) Sequence of Conditions of an Event
 6) Probable Events and Conditions
 
 **Lesson 3 – Events in Physical or P-domain**
