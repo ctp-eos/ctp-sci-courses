@@ -153,7 +153,7 @@ This new era continues our tradition of community engagement through modern tele
 
 ## 📚 Total CTPSci Curriculum Overview
 
-CTP Energy Science (CTPSci) currently offers a comprehensive total of **109 courses**, divided across three progressive phases of study and exploration.
+CTP Energy Science (CTPSci) currently offers a comprehensive total of **110 courses**, divided across three progressive phases of study and exploration.
 
 - **Phase I** — 8 foundational courses introducing core CTPSci principles.  
 - **Phase II** — 84 expanded courses covering advanced C-domain systems, postquantum tech, non-human sciences, planetary engineering, and beyond.  
