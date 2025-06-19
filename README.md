@@ -105,7 +105,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Ontological Upward Positioning**  <br>
 - **The New Science of CTP Open-Source Consciousness**  <br>
 - **The New Science of CTP Phase Mechanics: Bridging Energy, Information, and Consciousness**  <br>
-- **The New Science of CTP Planetary Engineering**  <br
+- **The New Science of CTP Planetary Engineering**  <br>
 - **The New Science of CTP Planetary Grid Mapping and Strategic C-Domain Zones**  <br>
 - **The New Science of CTP Political Systems in the Post-Material World**  <br>
 - **The New Science of CTP Postquantum Sciences: New Science(s) Beyond the Standard Model**  <br>
