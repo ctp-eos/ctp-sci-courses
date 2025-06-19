@@ -125,6 +125,29 @@ This new era continues our tradition of community engagement through modern tele
 
 ---
 
+## ✅ Phase III Course Titles
+
+- **The New Science of CTP Angelic Systems: Interfacing Non-Human Spiritual Domains**  <br>
+- **The New Science of CTP Conscious Death & C-Transition Protocols**  <br>
+- **The New Science of CTP DNA-Consciousness Encoding and Ancestral Activation**  <br>
+- **The New Science of CTP Dimensional Entanglement and Parallel Field Bridging**  <br>
+- **The New Science of CTP Earth-Civilization Exit Strategies: Pre-Exodus Protocols**  <br>
+- **The New Science of CTP Epigenetic Reality Programming**  <br>
+- **The New Science of CTP Inner Map Devices: Interfaces for Self-Navigation**  <br>
+- **The New Science of CTP Karma as Field-Led System Memory**  <br>
+- **The New Science of CTP Lucidity Training: Conscious Navigation in Altered States**  <br>
+- **The New Science of CTP Memory Loop Disruption and Temporal Healing**  <br>
+- **The New Science of CTP Ontopolitical Evolution and Conscious Sovereignty**  <br>
+- **The New Science of CTP Planetary Ethics and Multispecies Stewardship**  <br>
+- **The New Science of CTP Post-Human Morphogenetics**  <br>
+- **The New Science of CTP Spatial Resonance Encryption and Field Secrecy Systems**  <br>
+- **The New Science of CTP Subconscious Engineering and Deep-Field Conditioning**  <br>
+- **The New Science of CTP Synthetic Synchronicity Generation Systems**  <br>
+- **The New Science of CTP Temporal Gateways and Nonlocal Porting Protocols**  <br>
+- **The New Science of CTP Vibrational Diagnostics and Consciousness Scan Systems**  <br>
+
+---
+
 # Other Courses
 - *Additional CTP Energy Science Courses – Coming Soon*
 
