@@ -129,6 +129,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Timecraft: Navigating the Chrono-Field**  <br>
 - **The New Science of CTP Timefield Engineering and Ontological Retrocausality**  <br>
 - **The New Science of CTP Translation Systems: Cross-Species Communication**  <br>
+- **The New Science of CTP UFOs/UAPs: CTP Craft Technologies to C-domain Incursions**  <br>
 
 ---
 
@@ -159,10 +160,10 @@ This new era continues our tradition of community engagement through modern tele
 
 ## 📚 Total CTPSci Curriculum Overview
 
-CTP Energy Science (CTPSci) currently offers a comprehensive total of **116 courses**, divided across three progressive phases of study and exploration.
+CTP Energy Science (CTPSci) currently offers a comprehensive total of **117 courses**, divided across three progressive phases of study and exploration.
 
 - **Phase I** — 8 foundational courses introducing core CTPSci principles.  
-- **Phase II** — 90 expanded courses covering advanced C-domain systems, postquantum tech, non-human sciences, planetary engineering, and beyond.  
+- **Phase II** — 91 expanded courses covering advanced C-domain systems, postquantum tech, non-human sciences, planetary engineering, and beyond.  
 - **Phase III** — 18 speculative and future-forward courses exploring hyperdimensional systems, post-human evolution, and C-domain consciousness technologies.
 
 > This curriculum will continue to grow as new discoveries, field applications, and higher-order knowledge streams from the C-domain emerge into collective awareness.
