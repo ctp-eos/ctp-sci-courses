@@ -139,7 +139,7 @@ This new era continues our tradition of community engagement through modern tele
 ## ✅ Phase III Course Titles
 
 - **The New Science of CTP CE Enities Systems: Interfacing Non-Human Spiritual Domains**  <br>
-- **The New Science of CTP Conscious Death & C-Transition Protocols**  <br>
+- **The New Science of CTP Conscious Ego Mind Death & C-Transition Protocols**  <br>
 - **The New Science of CTP DNA-Consciousness Encoding and Ancestral Activation**  <br>
 - **The New Science of CTP Dimensional Entanglement and Parallel Field Bridging**  <br>
 - **The New Science of CTP Earth-Civilization Exit Strategies: Pre-Exodus Protocols**  <br>
