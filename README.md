@@ -60,6 +60,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Conscious Development: Applied Ontological Selfhood**  <br>
 - **The New Science of CTP Contact Protocols: Conscious Interfacing with Non-Human Intelligences**  <br>
 - **The New Science of CTP Cosmology: From Astrophysics to Cosmology; Solving the Last Big Questions**  <br>
+- **The New Science of CTP CTPology: The Study of CTPSci Sciences**  <br>
 - **The New Science of CTP Dimensional Phase-Locking and Cross-Band Coherence**  <br>
 - **The New Science of CTP Disruption: Benefits, Challenges, & Implications; The Risks & Rewards**  <br>
 - **The New Science of CTP Dream Programming and Causal Field Intervention**  <br>
@@ -98,6 +99,7 @@ This new era continues our tradition of community engagement through modern tele
 - **The New Science of CTP Multiplanetary & Interstellar Advanced New Civilization**  <br>
 - **The New Science of CTP Non-human Intelligence – NHI**  <br>
 - **The New Science of CTP Nonlinear Spatial Fields and Parallel Consciousness Streams**  <br>
+- **The New Science of CTP Neuroplasticity**  <br>
 - **The New Science of CTP Ontological Architecture: Designing Reality through Field Awareness**  <br>
 - **The New Science of CTP Ontological Crises**  <br>
 - **The New Science of CTP Ontological Filters**  <br>
@@ -154,10 +156,10 @@ This new era continues our tradition of community engagement through modern tele
 
 ## 📚 Total CTPSci Curriculum Overview
 
-CTP Energy Science (CTPSci) currently offers a comprehensive total of **111 courses**, divided across three progressive phases of study and exploration.
+CTP Energy Science (CTPSci) currently offers a comprehensive total of **113 courses**, divided across three progressive phases of study and exploration.
 
 - **Phase I** — 8 foundational courses introducing core CTPSci principles.  
-- **Phase II** — 85 expanded courses covering advanced C-domain systems, postquantum tech, non-human sciences, planetary engineering, and beyond.  
+- **Phase II** — 87 expanded courses covering advanced C-domain systems, postquantum tech, non-human sciences, planetary engineering, and beyond.  
 - **Phase III** — 18 speculative and future-forward courses exploring hyperdimensional systems, post-human evolution, and C-domain consciousness technologies.
 
 > This curriculum will continue to grow as new discoveries, field applications, and higher-order knowledge streams from the C-domain emerge into collective awareness.
